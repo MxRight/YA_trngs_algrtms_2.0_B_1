@@ -1,0 +1,1 @@
+![Screenshot 2023-01-31 at 11-33-02 C  Даты — Яндекс  Тренировки по алгоритмам 2 0 занятие 1 (B) — Яндекс Контест](https://user-images.githubusercontent.com/88425424/215708961-63914045-54f9-430c-acde-dbdc731d9e8a.png)
