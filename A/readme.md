@@ -1,0 +1,1 @@
+![Screenshot 2023-01-31 at 11-29-48 A  Interactor — Яндекс  Тренировки по алгоритмам 2 0 занятие 1 (B) — Яндекс Контест](https://user-images.githubusercontent.com/88425424/215708410-87a1c56e-cea5-458a-92a8-594b5b3ccdb8.png)
